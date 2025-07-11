@@ -1,4 +1,4 @@
-# My AI Journey 🚀
+# My AI Journey
 
 **Self-Taught AI Engineer: 24-Month Roadmap (July 2025 - June 2027)**
 
